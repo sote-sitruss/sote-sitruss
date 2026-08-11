@@ -4,5 +4,6 @@
 ____free to int/c+h.____
 _i almost never go to afk, even if you see my status as —🌙 (unless my nickname says otherwise)_
 
-<h5 align="center">═══════════ ⋆★⋆ ═══════════</h5>
+────── · • · • · • · ──────
 
+_if i will afk, then whisper for int_
