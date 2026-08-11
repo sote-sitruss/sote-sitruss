@@ -6,4 +6,4 @@ _i almost never go to afk, even if you see my status as —🌙 (unless my nickn
 
 ────── · • · • · • · ──────
 
-_if i will afk, then whisper for int_
+_if i will afk, just whisper for int_
